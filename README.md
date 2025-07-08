@@ -17,4 +17,4 @@ I'm currently transitioning deeper into cybersecurity after several years in IT 
 - Contribute to projects that help people think critically
 
 ## 📬 Contact
-- LinkedIn: [Keny Castro](www.linkedin.com/in/kencastro)
+- LinkedIn: [Keny Castro](https://www.linkedin.com/in/kencastro)
